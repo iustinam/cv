@@ -41,7 +41,8 @@ iustina.melinte@gmail.com | +40748812244 | [LinkedIn](https://www.linkedin.com/i
 ---
 
 ## Projects
-- https://github.com/iustinam
+- https://github.com/iustinam, 
+- https://github.com/iustina-m
 
 ---
 
